@@ -3,7 +3,7 @@
 : - call me tanya, skippy or coda { those r what ppl call me often but tanya is my internet alias! }
 - I'M ANNOYING, BE WARNED.
 - NEVER INT IF UR DISRESPECTFUL TO QUEER 100%. I SUPPORT LGBTQ+
-- AM A MINOR.
+- I AM A MINOR.
 - DNI: 18+, <8
 - I AM OFFTAB OFTEN!! That means I will not be able to respond to things a lot.
 ### ︶︶︶︶︶ ;, ✧ ││ INFO!!! 
