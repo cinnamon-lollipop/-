@@ -4,7 +4,8 @@
 - I'M ANNOYING, BE WARNED.
 - NEVER INT IF UR DISRESPECTFUL TO QUEER 100%. I SUPPORT LGBTQ+
 - I AM A MINOR.
-- DNI: 18+, <8
+- DNI: 18+, <8, BASIC CRITERIA
+- I AM A SENSITIVE PERSON!! DO NOT INSULT / ANYTHING RUDE UNLESS IN RP
 - I AM OFFTAB OFTEN!! That means I will not be able to respond to things a lot.
 ### ︶︶︶︶︶ ;, ✧ ││ INFO!!! 
 
