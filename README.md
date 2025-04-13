@@ -11,6 +11,6 @@
 
 #### --- I JOIN RPS VERY OFTEN. 
 ~~ STATUS
-- AWAY - afk, offtab. { don't interact unless friend or said otherwise }
+- AWAY - afk, offtab or uncomfortable { don't interact unless friend or said otherwise }
 - BUSY - yes, just busy; or chatting with friends / in a rp { dont interact with me when im this unless said otherwise }
 - ONLINE - interactions here r fine
